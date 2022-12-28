@@ -1,1 +1,1 @@
-some shit like that
+some s*it like that
